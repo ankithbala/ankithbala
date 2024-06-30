@@ -12,7 +12,6 @@
 ## ⚡ Fun fact:
 - I'm a Marvel fan!<br>
 - Steins Gate is my favorite anime.<br>
-- I hate Apple products.<br>
 - I love to engage in debate.<br>
 
 
